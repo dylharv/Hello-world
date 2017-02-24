@@ -1,2 +1,5 @@
 # Hello-world
-first repository
+
+Welcome,
+
+We are here to pursue our passion of helping you through holistic, and spiritual means of healing.
