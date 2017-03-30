@@ -1,5 +1,3 @@
-# Title
+# Bliss Botanicals
 
-Welcome,
-
-We are here to pursue our passion of helping you through means of holistic and spiritual healing.
+We are comitted to providing natural and safe body products. Our values stem from simple and natural ingredients, sustainability, lifting self esteem and positive change.
