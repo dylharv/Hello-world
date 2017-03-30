@@ -1,3 +1,3 @@
 # Bliss Botanicals
 
-We are comitted to providing natural and safe body products. Our values stem from simple and natural ingredients, sustainability, lifting self esteem and positive change.
+We are passionate about providing natural and safe body products to our customers. Our values stem from simple and natural ingredients, sustainability, self confidence and positive change.
